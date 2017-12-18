@@ -1,1 +1,0 @@
-haydaaa ne iş 
